@@ -39,5 +39,3 @@
 ---
 
 ⭐ Obrigada por visitar meu perfil! Se conecte comigo e vamos trocar ideias! 🚀
-```
-
