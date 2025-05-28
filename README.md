@@ -1,4 +1,4 @@
-## 👋 Olá, me chamo Daniele! 
+## Daniele Santana 
 
 🎓 Estou finalizando a graduação em **Análise e Desenvolvimento de Sistemas**, e sou apaixonada por tecnologia, desenvolvimento de software e tudo que envolve inovação.
 
